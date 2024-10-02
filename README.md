@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @KaiqueaFerreiraAlves
+- Gosto de assistir animes e ler mangas
+- Anime favorito one Piece
+- Manga preferido Uzumaki
+- Adoro ler
+--->
